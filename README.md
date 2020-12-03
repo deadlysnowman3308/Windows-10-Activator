@@ -3,6 +3,10 @@
 
 Windows-10-Activator Made by Aniket
 
+*** First Uninstall pre-installed product key ***
+<br>
+** Disable anitivirus for better result **
+
 <br>
 <h2> View Activation, License, and Expiration Date Information: </h2>
 
